@@ -1,6 +1,6 @@
 ## blehh!!
 <p align="center">
-  <a href="https://deeryvos.carrd.co/">carrd</a> |
+  <a href="https://deerilyyvo.carrd.co/">carrd</a> |
   <a href="https://audiomack.com/healingsoul690/likes">audiomack</a>|
     <a href="https://deeryvo.atabook.org/">atabook</a>
 </p>
