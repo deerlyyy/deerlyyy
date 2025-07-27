@@ -5,10 +5,10 @@
     <a href="https://deeryvo.atabook.org/">atabook</a>
 </p>
 <p align="center">
-⤷ 𓏵 C+H is allowed!! unless i don't have C+H in my name :-(( ノ always whisper byi since im offtab a lot 〃
+⤷ 𓏵 C+H is allowed!! unless i don't have C+H in my name .ᐟ ノ always whisper byi since im offtab a lot ╰૮₍ •\ꈊ/• ₎ა╯ 〃
 </p>
 <p align="center">
-⤷ pls int, i need friends (ˉ﹃ˉ)
+⤷ pls int, i want friends ᨒ↟ 
 </p>
 <p align="center">
 ────୨ৎ────
