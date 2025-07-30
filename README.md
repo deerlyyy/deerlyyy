@@ -5,7 +5,8 @@
     <a href="https://deerilyyvo.atabook.org/">atabook</a>
   </p>
 <p align="center">
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/281b6cb0-2211-4d27-b69c-f28f7410f4ff" />
+<img width="819" height="153" alt="image" src="https://github.com/user-attachments/assets/51a3a614-3bae-44a5-a894-c6c9aa74add5" />
+
 </p>
 <p align="center">
 ⤷ 𓏵 C+H is allowed!! unless i don't have C+H in my name .ᐟ ノ always whisper byi since im offtab a lot ╰૮₍ •\ꈊ/• ₎ა╯ ╰ 〃
