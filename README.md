@@ -1,11 +1,12 @@
 ## blehh!!
+ </p>
+<p align="center">
+<img width="819" height="153" alt="image" src="https://github.com/user-attachments/assets/51a3a614-3bae-44a5-a894-c6c9aa74add5" />
 <p align="center">
   <a href="https://deerilyyvo.carrd.co/">carrd</a> |
   <a href="https://audiomack.com/healingsoul690/likes">audiomack</a>|
     <a href="https://deerilyyvo.atabook.org/">atabook</a>
-  </p>
-<p align="center">
-<img width="819" height="153" alt="image" src="https://github.com/user-attachments/assets/51a3a614-3bae-44a5-a894-c6c9aa74add5" />
+ 
 
 </p>
 <p align="center">
