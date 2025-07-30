@@ -14,5 +14,5 @@
 ────୨ৎ────
 </p>
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/98/46/2b/98462b0054f224101d7ff4a2e30ef4e7.jpg" alt="deers" width="200"/>
+  <img src="https://i.pinimg.com/1200x/98/46/2b/98462b0054f224101d7ff4a2e30ef4e7.jpg" alt="deers" width="400"/>
 </p>
