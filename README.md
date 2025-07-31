@@ -1,7 +1,7 @@
 ## blehh!!
  </p>
 <p align="center">
-<img width="819" height="153" alt="image" src="https://github.com/user-attachments/assets/51a3a614-3bae-44a5-a894-c6c9aa74add5" />
+<img width="640" height="35" alt="image" src="https://github.com/user-attachments/assets/d40a9f28-b2f1-4358-b11f-ec03924689a6" />
 <p align="center">
   <a href="https://deerilyyvo.carrd.co/">carrd</a> |
   <a href="https://audiomack.com/healingsoul690/likes">audiomack</a>|
