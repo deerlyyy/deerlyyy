@@ -25,8 +25,7 @@
 <p align="center">
   <img src="https://i.pinimg.com/1200x/98/46/2b/98462b0054f224101d7ff4a2e30ef4e7.jpg" alt="deers" width="400"/>
 </p>
-<p align="center">
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/76335ca8-47ce-476c-8fbe-83f4e2d6854a" />
+
 
 
 
