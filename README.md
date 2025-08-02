@@ -11,9 +11,6 @@
 </p>
 <p align="center">
 ⤷ 𓏵 C+H is allowed!! unless i don't have C+H in my name .ᐟ ノ always whisper byi since im offtab a lot ╰૮₍ •\ꈊ/• ₎ა╯ ╰ 〃
-  </p>
-<p align="center">
-  ⤷ inspo is encouraged!! <(˶ᵔᵕᵔ˶)> ╰ ★
 </p>
 <p align="center">
 ⤷ pls int, i want friends ᨒ↟ ノ . 
