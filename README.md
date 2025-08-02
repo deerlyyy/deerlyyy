@@ -21,5 +21,10 @@
 <p align="center">
   <img src="https://i.pinimg.com/1200x/98/46/2b/98462b0054f224101d7ff4a2e30ef4e7.jpg" alt="deers" width="400"/>
 </p>
-[!][carrd](https://img.shields.io/badge/carrd-brown)](https://deerilyyvo.carrd.co/) [!][atabook](https://img.shields.io/badge/atabook-lightblue)](https://deerilyyvo.atabook.org/)
+<a href="https://deerilyyvo.carrd.co/">
+  <img src="https://img.shields.io/badge/carrd-brown" alt="carrd" />
+</a>
+<a href="https://deerilyyvo.atabook.org/">
+  <img src="https://img.shields.io/badge/atabook-lightblue" alt="atabook" />
+</a>
 
