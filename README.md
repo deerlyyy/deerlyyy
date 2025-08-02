@@ -2,10 +2,14 @@
  </p>
 <p align="center">
 <img width="640" height="35" alt="image" src="https://github.com/user-attachments/assets/d40a9f28-b2f1-4358-b11f-ec03924689a6" />
-<p align="center">
-  <a href="https://deerilyyvo.carrd.co/">carrd</a> |
-  <a href= ⸙
-    <a href="https://deerilyyvo.atabook.org/">atabook</a>
+<div align="center">
+  <a href="https://deerilyyvo.carrd.co/">
+    <img src="https://img.shields.io/badge/carrd-%20-lightbrown?color=d2b48c" alt="carrd" style="margin-right:10px;" />
+  </a>
+  <a href="https://deerilyyvo.atabook.org/">
+    <img src="https://img.shields.io/badge/atabook-lightblue?color=add8e6" alt="atabook" />
+  </a>
+</div>
  
 
 </p>
@@ -21,10 +25,4 @@
 <p align="center">
   <img src="https://i.pinimg.com/1200x/98/46/2b/98462b0054f224101d7ff4a2e30ef4e7.jpg" alt="deers" width="400"/>
 </p>
-<a href="https://deerilyyvo.carrd.co/">
-  <img src="https://img.shields.io/badge/carrd-brown" alt="carrd" />
-</a>
-<a href="https://deerilyyvo.atabook.org/">
-  <img src="https://img.shields.io/badge/atabook-lightblue" alt="atabook" />
-</a>
 
