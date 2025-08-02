@@ -10,7 +10,7 @@
     <img src="https://img.shields.io/badge/atabook-lightblue?color=add8e6" alt="atabook" />
   </a>
   <a href="https://www.roblox.com/users/8408466806/profile">
-    <img src="https://img.shields.io/badge/atabook-blue?color=1446ff" alt="roblox" />
+    <img src="https://img.shields.io/badge/roblox-blue?color=1446ff" alt="roblox" />
   </a>
 </div>
  
