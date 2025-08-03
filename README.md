@@ -21,7 +21,8 @@
 </p>
 
 <p align="center">
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/c42e51c2-8648-48da-98c8-15f0ce46b9c4" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/aaadf460-b0d6-46ad-a2f2-0566e0937793" />
+
 
 <p align="center">
 𝐬𝐭𝐮𝐟𝐟 𝐢𝐦 𝐢𝐧𝐭𝐨:
