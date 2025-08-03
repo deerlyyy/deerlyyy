@@ -16,8 +16,8 @@
 <p align="center">
  ⭑.ᐟ huge touch comfort - c+h is always allowed! im offtab most of the time, so please whisper byi ╰૮₍ •\./• ₎ა╯ - always feel free to int since i love making new friends!
 <p align="center">
-  <a href="https://www.roblox.com/users/8408466806/profile">𝐑𝐨𝐛𝐥𝐨𝐱</a> x
-  <a href="https://en.pronouns.page/@deerilyyvo">𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐩𝐚𝐠𝐞</a> x
+  <a href="https://www.roblox.com/users/8408466806/profile">𝐑𝐨𝐛𝐥𝐨𝐱</a> ★
+  <a href="https://en.pronouns.page/@deerilyyvo">𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐩𝐚𝐠𝐞</a> ★
  <a href="https://deerilyyvo.atabook.org/">𝐚𝐭𝐚𝐛𝐨𝐨𝐤</a>
 </p>
 
@@ -27,7 +27,7 @@
 <p align="center">
 𝐬𝐭𝐮𝐟𝐟 𝐢𝐦 𝐢𝐧𝐭𝐨:
  <p align="center">
- > 𝑪𝑶𝑭, 𝑨𝑭𝑹𝑨𝑰𝑫 𝑶𝑭 𝑴𝑶𝑵𝑺𝑻𝑬𝑹𝑺, 𝑺𝑰𝑳𝑬𝑵𝑻 𝑯𝑰𝑳𝑳, 𝑹𝑫𝑹, 𝑨𝑷𝑷𝑳𝑬 𝑨𝑵𝑫 𝑶𝑵𝑰𝑶𝑵, 𝑹𝑶𝑩𝑳𝑶𝑿, 𝑴𝑰𝑵𝑬𝑪𝑹𝑨𝑭𝑻, 𝑨𝑵𝑰𝑴𝑨𝑳 𝑪𝑹𝑶𝑺𝑺𝑰𝑵𝑮, 𝑬𝑫𝑫𝑺𝑾𝑶𝑹𝑳𝑫, 𝑭𝑵𝑨𝑭, 𝑫𝑹𝑨𝑾𝑰𝑵𝑮.
+ > 𝑪𝑶𝑭, 𝑨𝑭𝑹𝑨𝑰𝑫 𝑶𝑭 𝑴𝑶𝑵𝑺𝑻𝑬𝑹𝑺, 𝑺𝑰𝑳𝑬𝑵𝑻 𝑯𝑰𝑳𝑳, 𝑹𝑫𝑹, 𝑨𝑷𝑷𝑳𝑬 𝑨𝑵𝑫 𝑶𝑵𝑰𝑶𝑵, 𝑹𝑶𝑩𝑳𝑶𝑿, 𝑴𝑰𝑵𝑬𝑪𝑹𝑨𝑭𝑻, 𝑨𝑵𝑰𝑴𝑨𝑳 𝑪𝑹𝑶𝑺𝑺𝑰𝑵𝑮, 𝑬𝑫𝑫𝑺𝑾𝑶𝑹𝑳𝑫, 𝑭𝑵𝑨𝑭, 𝑫𝑹𝑨𝑾𝑰𝑵𝑮, 𝑺𝑷𝑰𝑫𝑬𝑹𝑴𝑨𝑵 𝑨𝑪𝑹𝑶𝑺𝑺/𝑰𝑵𝑻𝑶 𝑻𝑯𝑬 𝑺𝑷𝑰𝑫𝑬𝑹𝑽𝑬𝑹𝑺𝑬, 𝑰𝑵𝑽𝑰𝑵𝑪𝑰𝑩𝑳𝑬 ୨୧
   <p align="center">
   ୨ৎ 𝐛𝐲𝐢 - sometimes i talk a lot, sometimes i don't. i joke around a lot, so pls don't take me too seriously! i'm friendly, and will always be open for interaction!! :-p
     <p align="center">
