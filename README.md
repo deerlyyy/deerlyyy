@@ -31,7 +31,11 @@
 <p align="center">
 stuff im into:
  <p align="center">
- > COF, AFRAID OF MONSTERS, SILENT HILL, RDR, APPLE AND ONION, ROBLOX, MINECRAFT, ANIMAL CROSSING, EDDSWORLD, FNAF, 
+ > COF, AFRAID OF MONSTERS, SILENT HILL, RDR, APPLE AND ONION, ROBLOX, MINECRAFT, ANIMAL CROSSING, EDDSWORLD, FNAF, DRAWING.
+  <p align="center">
+  ୨ৎ byi - sometimes i talk a lot, sometimes i don't. i joke around a lot, so pls don't take me too seriously! i'm friendly, and will always be open to interaction!! :-p
+  <p align="center">
+   ୨ৎ  dni - basic dni criteria, if you support problematic people or agree with their said "opinions"
 
 <p align="center">
 <img width="2048" height="250" alt="image" src="https://media.discordapp.net/attachments/1400116994111701196/1401586682624475166/Untitled4_20250803182452.png?ex=6890d0d1&is=688f7f51&hm=c018d97829624c9c4b19d0f8722beae52584efc9b6188c27c65288c688ade5b6&=&format=webp&quality=lossless&width=1350&height=600" />
