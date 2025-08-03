@@ -1,7 +1,7 @@
 ## blehh!!
  </p>
 <p align="center">
-<img width="600" height="600" alt="image" src="https://files.catbox.moe/ilumol.png" />
+<img width="900" height="700" alt="image" src="https://files.catbox.moe/ilumol.png" />
  
 
 
