@@ -16,6 +16,15 @@
 <p align="center">
  ⭑.ᐟ huge touch comfort - c+h is always allowed! im offtab most of the time, so please whisper byi ╰૮₍ •\./• ₎ა╯ - always feel free to int since i love making new friends!
 </p>
+<div align="center">
+  <a href="https://deerilyyvo.atabook.org/">
+    <img src="https://img.shields.io/badge/atabook-lightblue?color=add8e6" alt="atabook" style="margin-right:10px;" />
+  </a>
+  <a href="https://www.roblox.com/users/your-user-id-here/profile">
+    <img src="https://img.shields.io/badge/roblox-%20?color=22a6ff" alt="roblox" />
+  </a>
+</div>
+
 <p align="center">
 <img width="2048" height="250" alt="image" src="https://media.discordapp.net/attachments/1400116994111701196/1401586682624475166/Untitled4_20250803182452.png?ex=6890d0d1&is=688f7f51&hm=c018d97829624c9c4b19d0f8722beae52584efc9b6188c27c65288c688ade5b6&=&format=webp&quality=lossless&width=1350&height=600" />
 
