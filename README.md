@@ -5,7 +5,8 @@
 
  </p>
 <p align="center">
-call yvo! 
+deeryvo or yvo! ⸙ any prns
+genderfluid ⋆ bi 
 
 
 
