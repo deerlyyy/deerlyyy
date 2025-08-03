@@ -11,6 +11,7 @@
    </p>
 <p align="center">
  <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/01401a94-827e-46ce-9379-49b45c536a2f" />
+ 
    </p>
 <p align="center">
  ⭑.ᐟ huge touch comfort - c+h is always allowed! im offtab most of the time, so please whisper byi ╰૮₍ •\./• ₎ა╯ - always feel free to int since i love making new friends!
