@@ -26,6 +26,12 @@
 </div>
 
 <p align="center">
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/c42e51c2-8648-48da-98c8-15f0ce46b9c4" />
+
+<p align="center">
+stuff im into: COF, AFRAID OF MONSTERS, SILENT HILL, RDR, APPLE AND ONION, ROBLOX, MINECRAFT, ANIMAL CROSSING, EDDSWORLD, FNAF, 
+
+<p align="center">
 <img width="2048" height="250" alt="image" src="https://media.discordapp.net/attachments/1400116994111701196/1401586682624475166/Untitled4_20250803182452.png?ex=6890d0d1&is=688f7f51&hm=c018d97829624c9c4b19d0f8722beae52584efc9b6188c27c65288c688ade5b6&=&format=webp&quality=lossless&width=1350&height=600" />
 
 
