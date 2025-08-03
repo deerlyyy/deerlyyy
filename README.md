@@ -15,15 +15,10 @@
    </p>
 <p align="center">
  ⭑.ᐟ huge touch comfort - c+h is always allowed! im offtab most of the time, so please whisper byi ╰૮₍ •\./• ₎ა╯ - always feel free to int since i love making new friends!
+<p align="center">
+  <a href="https://www.roblox.com/users/8408466806/profile">𝐑𝐨𝐛𝐥𝐨𝐱</a> |
+  <a href="https://en.pronouns.page/@deerilyyvo">𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐩𝐚𝐠𝐞</a>
 </p>
-<div align="center">
-  <a href="https://deerilyyvo.atabook.org/">
-    <img src="https://img.shields.io/badge/atabook-lightblue?color=add8e6" alt="atabook" style="margin-right:10px;" />
-  </a>
-  <a href="https://www.roblox.com/users/your-user-id-here/profile">
-    <img src="https://img.shields.io/badge/roblox-%20?color=22a6ff" alt="roblox" />
-  </a>
-</div>
 
 <p align="center">
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/c42e51c2-8648-48da-98c8-15f0ce46b9c4" />
@@ -33,7 +28,7 @@ stuff im into:
  <p align="center">
  > COF, AFRAID OF MONSTERS, SILENT HILL, RDR, APPLE AND ONION, ROBLOX, MINECRAFT, ANIMAL CROSSING, EDDSWORLD, FNAF, DRAWING.
   <p align="center">
-  ୨ৎ byi - sometimes i talk a lot, sometimes i don't. i joke around a lot, so pls don't take me too seriously! i'm friendly, and will always be open to interaction!! :-p
+  ୨ৎ byi - sometimes i talk a lot, sometimes i don't. i joke around a lot, so pls don't take me too seriously! i'm friendly, and will always be open for interaction!! :-p
   <p align="center">
    ୨ৎ  dni - basic dni criteria, if you support problematic people or agree with their said "opinions"
 
