@@ -5,8 +5,13 @@
 
  </p>
 <p align="center">
-deeryvo or yvo! ⸙ any prns
+deeryvo or **yvo!** ⸙ any prns
+  </p>
+ <p align="center">
 genderfluid ⋆ bi 
+  </p>
+ <p align="center">
+ romanian ᨒ↟
 
 
 
