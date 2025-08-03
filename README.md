@@ -29,7 +29,7 @@
  <p align="center">
  > 𝑪𝑶𝑭, 𝑨𝑭𝑹𝑨𝑰𝑫 𝑶𝑭 𝑴𝑶𝑵𝑺𝑻𝑬𝑹𝑺, 𝑺𝑰𝑳𝑬𝑵𝑻 𝑯𝑰𝑳𝑳, 𝑹𝑫𝑹, 𝑨𝑷𝑷𝑳𝑬 𝑨𝑵𝑫 𝑶𝑵𝑰𝑶𝑵, 𝑹𝑶𝑩𝑳𝑶𝑿, 𝑴𝑰𝑵𝑬𝑪𝑹𝑨𝑭𝑻, 𝑨𝑵𝑰𝑴𝑨𝑳 𝑪𝑹𝑶𝑺𝑺𝑰𝑵𝑮, 𝑬𝑫𝑫𝑺𝑾𝑶𝑹𝑳𝑫, 𝑭𝑵𝑨𝑭, 𝑫𝑹𝑨𝑾𝑰𝑵𝑮, 𝑺𝑷𝑰𝑫𝑬𝑹𝑴𝑨𝑵 𝑨𝑪𝑹𝑶𝑺𝑺/𝑰𝑵𝑻𝑶 𝑻𝑯𝑬 𝑺𝑷𝑰𝑫𝑬𝑹𝑽𝑬𝑹𝑺𝑬, 𝑰𝑵𝑽𝑰𝑵𝑪𝑰𝑩𝑳𝑬 ୨୧
   <p align="center">
-  ୨ৎ 𝐛𝐲𝐢 - sometimes i talk a lot, sometimes i don't. i joke around a lot, so pls don't take me too seriously! always be open for interaction!! :-p
+  ୨ৎ 𝐛𝐲𝐢 - sometimes i talk a lot, sometimes i don't. i joke around a lot, so pls don't take me too seriously! on all ocassions i'm open for interaction!! :-p
     <p align="center">
 <img width="2048" height="123" alt="image" src="https://64.media.tumblr.com/b293eed104b402722db227b57e84eb79/6358e14772faff9b-ae/s2048x3072/396341996f526868ba3fab87a8cb06db98a6a86b.pnj" />
   <p align="center">
