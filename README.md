@@ -25,15 +25,15 @@
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/c42e51c2-8648-48da-98c8-15f0ce46b9c4" />
 
 <p align="center">
-stuff im into:
+𝐬𝐭𝐮𝐟𝐟 𝐢𝐦 𝐢𝐧𝐭𝐨:
  <p align="center">
- > COF, AFRAID OF MONSTERS, SILENT HILL, RDR, APPLE AND ONION, ROBLOX, MINECRAFT, ANIMAL CROSSING, EDDSWORLD, FNAF, DRAWING.
+ > 𝑪𝑶𝑭, 𝑨𝑭𝑹𝑨𝑰𝑫 𝑶𝑭 𝑴𝑶𝑵𝑺𝑻𝑬𝑹𝑺, 𝑺𝑰𝑳𝑬𝑵𝑻 𝑯𝑰𝑳𝑳, 𝑹𝑫𝑹, 𝑨𝑷𝑷𝑳𝑬 𝑨𝑵𝑫 𝑶𝑵𝑰𝑶𝑵, 𝑹𝑶𝑩𝑳𝑶𝑿, 𝑴𝑰𝑵𝑬𝑪𝑹𝑨𝑭𝑻, 𝑨𝑵𝑰𝑴𝑨𝑳 𝑪𝑹𝑶𝑺𝑺𝑰𝑵𝑮, 𝑬𝑫𝑫𝑺𝑾𝑶𝑹𝑳𝑫, 𝑭𝑵𝑨𝑭, 𝑫𝑹𝑨𝑾𝑰𝑵𝑮.
   <p align="center">
-  ୨ৎ byi - sometimes i talk a lot, sometimes i don't. i joke around a lot, so pls don't take me too seriously! i'm friendly, and will always be open for interaction!! :-p
+  ୨ৎ 𝐛𝐲𝐢 - sometimes i talk a lot, sometimes i don't. i joke around a lot, so pls don't take me too seriously! i'm friendly, and will always be open for interaction!! :-p
     <p align="center">
 <img width="2048" height="123" alt="image" src="https://64.media.tumblr.com/b293eed104b402722db227b57e84eb79/6358e14772faff9b-ae/s2048x3072/396341996f526868ba3fab87a8cb06db98a6a86b.pnj" />
   <p align="center">
-   ୨ৎ  dni - basic dni criteria, if you support problematic people or agree with their said "opinions"
+   ୨ৎ  𝐝𝐧𝐢 - basic dni criteria, if you support problematic people or agree with their said "opinions"
     <p align="center">
     <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/d1c28496-06b8-4c1c-b1dc-e8b6c7797e86" />
 <p align="center">
