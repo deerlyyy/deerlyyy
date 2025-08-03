@@ -1,33 +1,11 @@
 ## blehh!!
  </p>
 <p align="center">
-<img width="640" height="35" alt="image" src="https://github.com/user-attachments/assets/d40a9f28-b2f1-4358-b11f-ec03924689a6" />
-<div align="center">
-  <a href="https://deerilyyvo.carrd.co/">
-    <img src="https://img.shields.io/badge/carrd-%20-lightbrown?color=d2b48c" alt="carrd" style="margin-right:10px;" />
-  </a>
-  <a href="https://deerilyyvo.atabook.org/">
-    <img src="https://img.shields.io/badge/atabook-lightblue?color=add8e6" alt="atabook" />
-  </a>
-  <a href="https://www.roblox.com/users/8408466806/profile">
-    <img src="https://img.shields.io/badge/roblox-blue?color=1446ff" alt="roblox" />
-  </a>
-</div>
- 
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/196a47fd-54d5-4f78-8498-151f91f2fdcb" />
+ </p>
+<p align="center">
+remaking, but im lazy.. THIS will be peak
 
-</p>
-<p align="center">
-⤷ 𓏵 C+H is allowed!! unless i don't have C+H in my name .ᐟ ノ always whisper byi since im offtab a lot ╰૮₍ •\ꈊ/• ₎ა╯ ╰ 〃
-</p>
-<p align="center">
-⤷ pls int, i want friends ᨒ↟ ノ . 
-</p>
-<p align="center">
-︵︵︵︵ . ୨୧ . ︵︵︵︵
-</p>
-<p align="center">
-  <img src="https://i.pinimg.com/1200x/98/46/2b/98462b0054f224101d7ff4a2e30ef4e7.jpg" alt="deers" width="400"/>
-</p>
 
 
 
