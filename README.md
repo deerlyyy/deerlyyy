@@ -1,7 +1,8 @@
 ## blehh!!
  </p>
 <p align="center">
-wip; basic info -> huge touch comfort, c+h is allowed!! whisper byi since im offtab most of the time. (*￣3￣)╭ i love making new friends, so don't hesitate to int if you want to
+<img width="684" height="684" alt="image" src="https://github.com/user-attachments/assets/f3c9a804-415b-4b02-b5ec-96bd05498cdd" />
+
  
 
 
