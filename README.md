@@ -5,8 +5,7 @@
 
  </p>
 <p align="center">
-deeryvo or _yvo!_ ⸙ any prns
-  </p>
+deeryvo or _yvo! ⸙ any prns
  <p align="center">
 genderfluid ⋆ bi 
   </p>
