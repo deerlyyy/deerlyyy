@@ -1,11 +1,11 @@
 ## blehh!!
  </p>
 <p align="center">
-<img width="500" height="82" alt="image" src="https://github.com/user-attachments/assets/f2cbe3ee-5e2f-45d1-9bb0-8e139da41b90" />
+<img width="700" height="82" alt="image" src="https://github.com/user-attachments/assets/f2cbe3ee-5e2f-45d1-9bb0-8e139da41b90" />
 
  </p>
 <p align="center">
-<img width="500" height="115" alt="image" src="https://github.com/user-attachments/assets/6ca88e88-e172-4846-9dd8-b5de5bf52500" />
+<img width="700" height="115" alt="image" src="https://github.com/user-attachments/assets/6ca88e88-e172-4846-9dd8-b5de5bf52500" />
 
 
 
