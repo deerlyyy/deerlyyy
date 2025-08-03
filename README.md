@@ -35,7 +35,7 @@ stuff im into:
   <p align="center">
    ୨ৎ  dni - basic dni criteria, if you support problematic people or agree with their said "opinions"
     <p align="center">
-    <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/6d6effe6-79f1-4a41-9852-7edc14f1e689" />
+    <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/d1c28496-06b8-4c1c-b1dc-e8b6c7797e86" />
 <p align="center">
 <img width="2048" height="250" alt="image" src="https://media.discordapp.net/attachments/1400116994111701196/1401586682624475166/Untitled4_20250803182452.png?ex=6890d0d1&is=688f7f51&hm=c018d97829624c9c4b19d0f8722beae52584efc9b6188c27c65288c688ade5b6&=&format=webp&quality=lossless&width=1350&height=600" />
 
