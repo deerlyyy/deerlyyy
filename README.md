@@ -30,6 +30,8 @@ stuff im into:
  > COF, AFRAID OF MONSTERS, SILENT HILL, RDR, APPLE AND ONION, ROBLOX, MINECRAFT, ANIMAL CROSSING, EDDSWORLD, FNAF, DRAWING.
   <p align="center">
   ୨ৎ byi - sometimes i talk a lot, sometimes i don't. i joke around a lot, so pls don't take me too seriously! i'm friendly, and will always be open for interaction!! :-p
+    <p align="center">
+<img width="300" height="300" alt="image" src="https://64.media.tumblr.com/b293eed104b402722db227b57e84eb79/6358e14772faff9b-ae/s2048x3072/396341996f526868ba3fab87a8cb06db98a6a86b.pnj" />
   <p align="center">
    ୨ৎ  dni - basic dni criteria, if you support problematic people or agree with their said "opinions"
 
