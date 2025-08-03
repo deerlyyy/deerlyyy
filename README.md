@@ -1,7 +1,8 @@
 ## blehh!!
  </p>
 <p align="center">
-<img width="700" height="700" alt="image" src="https://github.com/user-attachments/assets/f2cbe3ee-5e2f-45d1-9bb0-8e139da41b90" />
+<img width="2047" height="228" alt="image" src="https://github.com/user-attachments/assets/98364837-24d8-4740-8c28-171c9175820e" />
+
 
  </p>
 <p align="center">
