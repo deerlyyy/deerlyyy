@@ -17,7 +17,8 @@
  ⭑.ᐟ huge touch comfort - c+h is always allowed! im offtab most of the time, so please whisper byi ╰૮₍ •\./• ₎ა╯ - always feel free to int since i love making new friends!
 <p align="center">
   <a href="https://www.roblox.com/users/8408466806/profile">𝐑𝐨𝐛𝐥𝐨𝐱</a> x
-  <a href="https://en.pronouns.page/@deerilyyvo">𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐩𝐚𝐠𝐞</a>
+  <a href="https://en.pronouns.page/@deerilyyvo">𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐩𝐚𝐠𝐞</a> x
+ <a href="https://deerilyyvo.atabook.org/">𝐚𝐭𝐚𝐛𝐨𝐨𝐤</a>
 </p>
 
 <p align="center">
