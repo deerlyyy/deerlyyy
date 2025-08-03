@@ -4,8 +4,8 @@
 <img width="2048" height="250" alt="image" src="https://github.com/user-attachments/assets/9a67263a-c833-46e9-b423-5cd3d8832a46" />
  </p>
 <p align="center">
-    <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/d1c28496-06b8-4c1c-b1dc-e8b6c7797e86" />
-<p align="center">
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/0617348b-b24a-47e0-8072-61290353afd9" />
+ <p align="center">
  𝐲𝐯𝐨 𓏵 any prns! 4teen . genderfluid ✦ romanian
    </p>
 <p align="center">
