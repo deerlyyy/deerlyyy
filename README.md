@@ -4,8 +4,7 @@
 <img width="2048" height="250" alt="image" src="https://github.com/user-attachments/assets/9a67263a-c833-46e9-b423-5cd3d8832a46" />
  </p>
 <p align="center">
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/579f3f19-993f-49cd-9afb-a38589052f9b" />
-  </p>
+    <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/d1c28496-06b8-4c1c-b1dc-e8b6c7797e86" />
 <p align="center">
  𝐲𝐯𝐨 𓏵 any prns! 4teen . genderfluid ✦ romanian
    </p>
@@ -34,9 +33,7 @@
 <img width="2048" height="123" alt="image" src="https://64.media.tumblr.com/b293eed104b402722db227b57e84eb79/6358e14772faff9b-ae/s2048x3072/396341996f526868ba3fab87a8cb06db98a6a86b.pnj" />
   <p align="center">
    ୨ৎ  𝐝𝐧𝐢 - basic dni criteria, if you support problematic people or agree with their said "opinions"
-    <p align="center">
-    <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/d1c28496-06b8-4c1c-b1dc-e8b6c7797e86" />
-<p align="center">
+   <p align="center">
 <img width="2048" height="250" alt="image" src="https://media.discordapp.net/attachments/1400116994111701196/1401586682624475166/Untitled4_20250803182452.png?ex=6890d0d1&is=688f7f51&hm=c018d97829624c9c4b19d0f8722beae52584efc9b6188c27c65288c688ade5b6&=&format=webp&quality=lossless&width=1350&height=600" />
 
 
