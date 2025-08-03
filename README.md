@@ -7,7 +7,7 @@
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/579f3f19-993f-49cd-9afb-a38589052f9b" />
   </p>
 <p align="center">
- yvo 𓏵 any prns! 4teen . genderfluid & romanian
+ 𝐲𝐯𝐨 𓏵 any prns! 4teen . genderfluid & romanian
    </p>
 <p align="center">
  <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/01401a94-827e-46ce-9379-49b45c536a2f" />
