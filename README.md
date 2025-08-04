@@ -4,9 +4,9 @@
 <img width="2048" height="250" alt="image" src="https://github.com/user-attachments/assets/9a67263a-c833-46e9-b423-5cd3d8832a46" />
  </p>
 <p align="center">
-<img width="900" height="675" alt="image" src="https://github.com/user-attachments/assets/0617348b-b24a-47e0-8072-61290353afd9" />
+<img width="900" height="443" alt="image" src="https://github.com/user-attachments/assets/658a5966-b26b-4a9f-bd6f-94b0d013a515" />
  <p align="center">
- 𝐲𝐯𝐨 𓏵 any prns! 4teen . genderfluid ✦ romanian
+ call me YVO 𓏵 any prns! 4teen . genderfluid ✦ romanian
    </p>
 <p align="center">
  <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/01401a94-827e-46ce-9379-49b45c536a2f" />
