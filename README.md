@@ -7,6 +7,7 @@
   <a href="https://deerilyyvo.atabook.org/">𝐚𝐭𝐚𝐛𝐨𝐨𝐤</a> 
 </p>
   <p align="center">
+  whisper byi since i'm offtab most of the time ⭑.ᐟ c+h me anytime you please
   
  
 
