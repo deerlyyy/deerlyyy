@@ -8,7 +8,7 @@
   <a href="https://rentry.co/deerilyyvo">abt me</a>
 </p>
   <p align="center">
-  whisper byi since i'm offtab most of the time ⭑.ᐟ c+h me anytime you please
+  whisper byi since i'm offtab most of the time ⭑.ᐟ c+h me anytime you wish to 
   
  
 
