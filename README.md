@@ -5,7 +5,7 @@
  <p align="center">
   <a href="https://www.roblox.com/users/8408466806/profile">roblox</a> .
   <a href="https://deerilyyvo.atabook.org/">𝐚𝐭𝐚𝐛𝐨𝐨𝐤</a> .
-  <a href="https://rentry.co/deerilyyvo">abt me</a>
+  <a href="https://deerilyyvo.carrd.co/">abt me</a>
 </p>
   <p align="center">
   whisper byi since i'm offtab most of the time ⭑.ᐟ c+h me anytime you wish to 
