@@ -10,7 +10,7 @@
 
    sign my ata for a big smooch, oki thank you bye 😋
    <p align="center">
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/36747b6c-41d2-4476-bc76-b3d9e224666a" />
+<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/36747b6c-41d2-4476-bc76-b3d9e224666a" />
 
   
  
