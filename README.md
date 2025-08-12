@@ -7,10 +7,11 @@
   <a href="https://deerilyyvo.carrd.co/">abt me</a> 
   <p align="center">
   whisper byi since i'm offtab most of the time ⭑.ᐟ c+h me anytime you wish to 
-
+   
+<p align="center">
    sign my ata for a big smooch, oki thank you bye 😋
    <p align="center">
-<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/36747b6c-41d2-4476-bc76-b3d9e224666a" />
+<img width="800" height="400" alt="image" src="https://github.com/user-attachments/assets/36747b6c-41d2-4476-bc76-b3d9e224666a" />
 
   
  
