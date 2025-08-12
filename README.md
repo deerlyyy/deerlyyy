@@ -11,7 +11,7 @@
 <p align="center">
    sign my ata for a big smooch, oki thank you bye 😋
    <p align="center">
-<img width="100" height="400" alt="image" src="https://github.com/user-attachments/assets/36747b6c-41d2-4476-bc76-b3d9e224666a" />
+[<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/36747b6c-41d2-4476-bc76-b3d9e224666a" />](https://i.pinimg.com/1200x/c0/45/3f/c0453f50e65416fc11fee8ce899ee4c4.jpg)
 
   
  
