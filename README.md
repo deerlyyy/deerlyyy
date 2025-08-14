@@ -4,7 +4,7 @@
 𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> .
   <a href="https://deerilyyvo.carrd.co/">abt me</a> 
    <p align="center">
-   <img width="666" height="375" alt="image" src="https://github.com/user-attachments/assets/e4b5ffdc-249d-4643-8376-bb5e2d227b23" />
+   <img width="400" height="375" alt="image" src="https://github.com/user-attachments/assets/e4b5ffdc-249d-4643-8376-bb5e2d227b23" />
       <p align="center">
   whisper byi since i'm offtab most of the time ⭑.ᐟ c+h me anytime you wish to 
    
