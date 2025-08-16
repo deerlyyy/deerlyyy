@@ -2,7 +2,7 @@
  <p align="center">
   <a href="https://deerilyyvo.atabook.org/">
 𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> .
-  <a href="https://deerilyyvo.carrd.co/">abt me</a> 
+  <a href="https://deersareawesome.carrd.co/">abt me</a> 
       <p align="center">
   whisper byi since i'm offtab most of the time ⭑.ᐟ c+h me anytime you wish to 
    
