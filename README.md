@@ -1,6 +1,6 @@
 ## blehh!!
  <p align="center">
-  <a href="https://deerilyyvo.atabook.org/">
+  <a href="https://mydeeryv.atabook.org/">
 𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> .
   <a href="https://deersareawesome.carrd.co/">abt me</a> 
       <p align="center">
