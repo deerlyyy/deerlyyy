@@ -1,8 +1,9 @@
 ## blehh!!
  <p align="center">
   <a href="https://mydeeryv.atabook.org/">
-𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> .
-  <a href="https://deersareawesome.carrd.co/">abt me</a> 
+𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> ୨୧
+  <a href="https://deersareawesome.carrd.co/">abt me</a> ୨୧
+  <a href="https://en.pronouns.page/@mydeeryv_">pronouns page</a> 
       <p align="center">
 <img width="300" height="300" alt="image" src="https://i.pinimg.com/1200x/c0/45/3f/c0453f50e65416fc11fee8ce899ee4c4.jpg" />
 <p align="center">
