@@ -1,6 +1,6 @@
 ## blehh!!  
 <p align="center">
-<img width="450" height="450" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1408102222444625942/Untitled19_20250821175519.png?ex=68a884e3&is=68a73363&hm=e29a7ec19ffad8c543e3dfaf2c4738d69efed53ed75222fcf62afcf1db13f040&=&format=webp&quality=lossless&width=837&height=837" />
+<img width="450" height="450" alt="image" src="https://cdn.discordapp.com/attachments/1406201432738365532/1408104487394218095/Untitled20_20250821180345.png?ex=68a886ff&is=68a7357f&hm=a468cfcab280e655fc45147e61ec9a5121cf117375e057957ce6bb76a6c3268b" />
 <p align="center">
 whisper byi since i'm offtab most of the time ⭑.ᐟ c+h me anytime you wish to!!
 <p align="center">
