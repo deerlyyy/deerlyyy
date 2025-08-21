@@ -4,10 +4,10 @@
 <p align="center">
 whisper byi since i'm offtab most of the time ⭑.ᐟ c+h me anytime you wish to!!
 <p align="center">
-  <a href="https://deersareawesome.carrd.co/">abt me</a> ୨୧
+  𝜗ৎ <a href="https://deersareawesome.carrd.co/">abt me</a> ⊹ ࣪ ˖
      <a href="https://mydeeryv.atabook.org/">
-𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> ୨୧
-  <a href="https://en.pronouns.page/@mydeeryv_">pronouns page</a> 
+𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> ୭ ˚. 
+  <a href="https://en.pronouns.page/@mydeeryv_">pronouns page</a> 𓏵
 
 
 
