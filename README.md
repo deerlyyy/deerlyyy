@@ -1,5 +1,4 @@
 ## blehh!!  
-![hi to all the ppl who have visited!](https://komarev.com/ghpvc/?username=deerlyyy&color=green) thank you for visiting my profile! 𝜗ৎ 
 <p align="center">
 <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/1d71bce3-ee4a-4215-8a8a-4276e35f4812" />
 
