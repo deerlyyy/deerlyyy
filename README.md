@@ -4,7 +4,7 @@
 <p align="center">
 whisper byi, im offtab a lot | c+h is always allowed ( ꈍᴗꈍ)
   <p align="center">
-  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6fd42a3b-b9bb-4a16-9f85-e5c65f5ace4c" /> <img width="99" height="56" alt="gif" src="https://github.com/user-attachments/assets/005c729e-0fd7-4f7f-88ba-635dbac114a7" />
+  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6fd42a3b-b9bb-4a16-9f85-e5c65f5ace4c" /> <img width="99" height="56" alt="gif" src="https://64.media.tumblr.com/f9fb5837102d805eb51b73e7b8568a91/c0bd66d17964d11b-a6/s100x200/9ce254aa05dab3bf9ac4fdcffb94216a52422fb4.gifv" />
 
 <p align="center">
   𝜗ৎ <a href="https://deersareawesome.carrd.co/">abt me</a> ⊹ ࣪ ˖
