@@ -7,13 +7,13 @@
 
 <p align="center">
   <a href="https://deersareawesome.carrd.co/">
-    <img src="https://img.shields.io/badge/abt%20me-🦌%20click%20here-A0522D?style=for-the-badge&logoColor=white" />
+    <img src="https://img.shields.io/badge/abt%20me-click%20here-A0522D?style=flat&logoColor=white" />
   </a>
   <a href="https://mydeeryv.atabook.org/">
-    <img src="https://img.shields.io/badge/atabook-📚%20visit%20me-0000FF?style=for-the-badge&logoColor=white" />
+    <img src="https://img.shields.io/badge/atabook-visit%20me-0000FF?style=flat&logoColor=white" />
   </a>
   <a href="https://en.pronouns.page/@mydeeryv_">
-    <img src="https://img.shields.io/badge/pronouns%20page-🌸%20click%20here-FF69B4?style=for-the-badge&logoColor=white" />
+    <img src="https://img.shields.io/badge/pronouns%20page-click%20here-FF69B4?style=flat&logoColor=white" />
   </a>
 </p>
 
