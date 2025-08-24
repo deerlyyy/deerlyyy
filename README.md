@@ -1,6 +1,7 @@
 ## blehh!!  
 <p align="center">
-<img width="700" height="700" alt="image" src="https://cdn.discordapp.com/attachments/1406201432738365532/1408104487394218095/Untitled20_20250821180345.png?ex=68a886ff&is=68a7357f&hm=a468cfcab280e655fc45147e61ec9a5121cf117375e057957ce6bb76a6c3268b" />
+<img width="270" height="270" alt="image" src="https://64.media.tumblr.com/36a33a62638401effd0082760deebb7e/d4fe05dcb2568392-db/s400x600/fcfd5029e4d09a88d4cd1dc5b82cfad284637eb7.gifv" />
+
 <p align="center">
 whisper byi, im offtab a lot | c+h is always allowed ( ꈍᴗꈍ)
 <p align="center">
