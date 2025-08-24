@@ -1,6 +1,6 @@
 ## blehh!!  
 <p align="center">
-<img width="2048" height="2048" alt="image" src="https://64.media.tumblr.com/ae134f964c6245ce797f952687427f71/cc46a23cdfeefd6d-3c/s2048x3072/f5259ecbefaa387c190557c1c64f9437b80cefaa.pnj" />
+<img width="400" height="400" alt="image" src="https://64.media.tumblr.com/ae134f964c6245ce797f952687427f71/cc46a23cdfeefd6d-3c/s2048x3072/f5259ecbefaa387c190557c1c64f9437b80cefaa.pnj" />
 
 <p align="center">
 whisper byi, im offtab a lot | c+h is always allowed ( ꈍᴗꈍ)
