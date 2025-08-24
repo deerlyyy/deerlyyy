@@ -1,7 +1,7 @@
 ## blehh!!  
 <p align="center">
 <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/1d71bce3-ee4a-4215-8a8a-4276e35f4812" />
-
+whisper byi | i'm offtab a lot | c+h is always allowed ˶ᵔ ᵕ ᵔ˶
 
 
 <p align="center">
