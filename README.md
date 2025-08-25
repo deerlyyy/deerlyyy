@@ -12,8 +12,8 @@ whisper byi | i'm offtab a lot | c+h is always allowed ˶ᵔ ᵕ ᵔ˶
     <img src="https://img.shields.io/static/v1?label=ata&message=book&color=0000FF&labelColor=ffffff&style=flat&logoColor=white&logoWidth=0" />
   </a>
   <a href="https://en.pronouns.page/@mydeeryv_"> 
-    <img src="https://img.shields.io/static/v1?label=pronouns&message=page&color=FF69B4&labelColor=ffffff&style=flat&logoColor=white&logoWidth=0" /> ୭ ˚. 
-  </a>
+    <img src="https://img.shields.io/static/v1?label=pronouns&message=page&color=FF69B4&labelColor=ffffff&style=flat&logoColor=white&logoWidth=0" />  
+  </a> ୭ ˚.
 </p>
 
 <p align="center">
