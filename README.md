@@ -5,14 +5,14 @@ whisper byi | i'm offtab a lot | c+h is always allowed ˶ᵔ ᵕ ᵔ˶
 
 
 <p align="center">
-  <a href="https://deersareawesome.carrd.co/">
-    𝜗ৎ <img src="https://img.shields.io/static/v1?label=abt&message=me&color=A0522D&labelColor=ffffff&style=flat&logoColor=white&logoWidth=0" />
+ 𝜗ৎ <a href="https://deersareawesome.carrd.co/">
+     <img src="https://img.shields.io/static/v1?label=abt&message=me&color=A0522D&labelColor=ffffff&style=flat&logoColor=white&logoWidth=0" />
   </a> ⊹ ࣪ ˖
   <a href="https://mydeeryv.atabook.org/"> 
     <img src="https://img.shields.io/static/v1?label=ata&message=book&color=0000FF&labelColor=ffffff&style=flat&logoColor=white&logoWidth=0" />
   </a>
-  <a href="https://en.pronouns.page/@mydeeryv_"> ୭ ˚. 
-    <img src="https://img.shields.io/static/v1?label=pronouns&message=page&color=FF69B4&labelColor=ffffff&style=flat&logoColor=white&logoWidth=0" />
+  <a href="https://en.pronouns.page/@mydeeryv_"> 
+    <img src="https://img.shields.io/static/v1?label=pronouns&message=page&color=FF69B4&labelColor=ffffff&style=flat&logoColor=white&logoWidth=0" /> ୭ ˚. 
   </a>
 </p>
 
